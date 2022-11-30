@@ -1,1 +1,7 @@
-I've done the tutorials. Now where should I begin?
+---
+layout: home
+title: home
+permalink: /
+---
+
+This is the beginning of the project.
