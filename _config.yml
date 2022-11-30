@@ -9,3 +9,8 @@ markdown: kramdown
 kramdown:
   auto_ids: true
   toc_levels: 1..6
+
+collections:
+  pages:
+    output: true
+    permalink: /:collection/:path/
