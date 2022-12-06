@@ -11,4 +11,8 @@ Halaman 4
 
 Sejak dahulu Nabi Muhamad &#fdfa; senantiasa menyertai para sahabat &#fd43; dengan taklim dan pendidikan. Mengarahkan pada penyucian jiwa. Memotivasi pada keluhuran budi pekerti. Mengajarkan mereka akan adab-adab saling menyayangi dan persaudaraan, kekuatan dan kehormatan. Juga kepada ibadah dan ketaatan.
 
-Pada sisi ini, beliau &#fdfa begitu gencar memotivasi ...
+Beliau &#fdfa; begitu gencar memberikan motivasi agar kita senantiasa menjaga kehormatan diri. Sikap sabar dan bersahaja juga hal yang sering diucapkan oleh beliau.
+
+Beliau juga begitu erat mengikat para sahabat dengan wahyu yang diturunkan kepadanya. Ia membacakannya kepada mereka dan mereka pun gemar membacanya. Hal tersebut dilakukan agar proses menuntut ilmu meresap dalam relung jiwa mereka. Sehingga terpanggillah jiwa mereka dan kesetiaan kepada risalah kenabian. Seiring dengan bertambah pemahaman dan penghayatan terhadap nilai-nilai keislaman.
+
+Demikian Nabi Muhammad &#fdfa; menempa jiwa dan bakat para sahabat. Mereka dibekali dengan nilai-nilai yang tinggi dan luhur. Tidak heran jika mereka menjadi dikenal sebagai figur terbaik dalam sejarah manusia setelah para nabi.
