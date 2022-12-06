@@ -4,4 +4,6 @@ title: home
 permalink: /
 ---
 
-This is the beginning of the project.
+# Ilm Translation Project
+
+Blog ini berisi terjemahan *kutaibat* (buku-buku agama ringan) yang ditulis oleh beberapa *masyayikh*. 
