@@ -16,3 +16,7 @@ Beliau &#fdfa; begitu gencar memberikan motivasi agar kita senantiasa menjaga ke
 Beliau juga begitu erat mengikat para sahabat dengan wahyu yang diturunkan kepadanya. Ia membacakannya kepada mereka dan mereka pun gemar membacanya. Hal tersebut dilakukan agar proses menuntut ilmu meresap dalam relung jiwa mereka. Sehingga terpanggillah jiwa mereka dan kesetiaan kepada risalah kenabian. Seiring dengan bertambah pemahaman dan penghayatan terhadap nilai-nilai keislaman.
 
 Demikian Nabi Muhammad &#fdfa; menempa jiwa dan bakat para sahabat. Mereka dibekali dengan nilai-nilai yang tinggi dan luhur. Tidak heran jika mereka menjadi dikenal sebagai figur terbaik dalam sejarah manusia setelah para nabi.
+
+<!---
+Halaman 5
+-->
