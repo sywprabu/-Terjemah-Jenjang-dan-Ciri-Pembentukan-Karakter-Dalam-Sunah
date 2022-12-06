@@ -11,7 +11,7 @@ Halaman 4
 
 Sejak dahulu Nabi Muhamad ﷺ senantiasa menyertai para sahabat ﵃ dengan taklim dan pendidikan. Mengarahkan pada penyucian jiwa. Memotivasi pada keluhuran budi pekerti. Mengajarkan mereka akan adab-adab saling menyayangi dan persaudaraan, kekuatan dan kehormatan. Juga kepada ibadah dan ketaatan.
 
-Beliau &#fdfa; begitu gencar memberikan motivasi agar kita senantiasa menjaga kehormatan diri. Sikap sabar dan bersahaja juga hal yang sering diucapkan oleh beliau.
+Beliau  begitu gencar memberikan motivasi agar kita senantiasa menjaga kehormatan diri. Sikap sabar dan bersahaja juga hal yang sering diucapkan oleh beliau.
 
 Beliau juga begitu erat mengikat para sahabat dengan wahyu yang diturunkan kepadanya. Ia membacakannya kepada mereka dan mereka pun gemar membacanya. Hal tersebut dilakukan agar proses menuntut ilmu meresap dalam relung jiwa mereka. Sehingga terpanggillah jiwa mereka dan kesetiaan kepada risalah kenabian. Seiring dengan bertambah pemahaman dan penghayatan terhadap nilai-nilai keislaman.
 
