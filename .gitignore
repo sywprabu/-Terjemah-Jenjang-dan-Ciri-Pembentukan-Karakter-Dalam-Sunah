@@ -35,3 +35,9 @@
 .Trashes
 ehthumbs.db
 Thumbs.db
+
+# vim generated files #
+tags
+
+# jekyll stuff #
+_site/

@@ -1,4 +1,6 @@
 remote_theme: sighingnow/jekyll-gitbook
+livereload: true
+verbose: true
 
 toc:
   enabled: true
@@ -14,3 +16,6 @@ collections:
   pages:
     output: true
     permalink: /:collection/:path/
+
+plugins:
+  - jekyll-remote-theme
