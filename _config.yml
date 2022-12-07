@@ -1,4 +1,5 @@
 remote_theme: sighingnow/jekyll-gitbook
+gitbook_version:  3.2.3
 livereload: true
 verbose: true
 
@@ -19,3 +20,6 @@ collections:
 
 plugins:
   - jekyll-remote-theme
+  - jekyll-feed
+  - jekyll-readme-index
+  - jemoji
