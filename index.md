@@ -1,6 +1,6 @@
 ---
 title: Ilm Translation Project
-layout: post
+layout: home
 ---
 *Asslamualaikum warohmatullahi wabarokatuh*
 
