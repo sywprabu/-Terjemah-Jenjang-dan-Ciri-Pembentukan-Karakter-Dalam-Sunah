@@ -2,7 +2,7 @@
                 "all": ["facebook", "google", "twitter", "weibo", "instapaper", "github", "telegram"],
                 "facebook": false,
                 "google": false,
-                "github": true,
+                "github": false,
                 "github_link": "https://github.com",
                 "telegram": false,
                 "telegram_link": "https://t.me",
