@@ -23,4 +23,18 @@ Dan beginilah bagaimana Rasulullah ﷺ mengangkat moral, mental, dan bakat para 
 Membekali mereka dengan moral paling tinggi nan teladan. Sehingga mereka pun menjadi puncak tertinggi dari kesempurnaan akhlaq manusia yang pernah tertoreh dalam sejarah setelah para Nabi.
 
 ```P 2```
-Layaknya mata rantai, wahyu dari Allah turun dari langit kepada Nabi ﷺ secara terpisah yang setiap diturunkan wahyu-wahyu tersebut akan erat tersambung dalam rangkaiannya. ---
+Layaknya mata rantai, wahyu dari Allah turun dari langit kepada Nabi ﷺ secara terpisah yang setiap diturunkan wahyu-wahyu tersebut akan erat tersambung dalam rangkaiannya. 
+
+- Turunnya Al-Quran secara munajjaman merupakan bentuk penjagaan Allah kepada para sahabat.
+
+- Allah maha tahu akan segala sesuatu walaupun hanya terbesit sekilas dalam benak seseorang
+
+- Allah mengasuh para sahabat dengan kejadian-kejadian dan Allah berikan mereka kekuatan, keteguhan.
+
+- Allah memberikan ujian kepada para sahabat untuk memoles mereka menjadi manusia yang murni, bersih, tanpa setitikpun kotoran pada mereka.
+
+```P3```
+- Nabi Muhammad ﷺ merupakan masinis dari kereta kemajuan peradaban manusia
+
+- Allah telah membentuk sahabat sedemikian rupa, sehingga mereka bisa mendidik generasi setelah mereka
+
